@@ -1,0 +1,2 @@
+# goodmorning
+早安
